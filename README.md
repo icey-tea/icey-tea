@@ -24,7 +24,7 @@ I’m excited to collaborate on:
 - **Portfolio:** [My Projects and Achievements](https://eniolaakinpelumi.netlify.app/)  
 
 ## 😄 Pronouns  
-They/He  
+He/Him  
 
 ## ⚡ Fun Fact  
 When I’m not coding, you’ll find me experimenting with recipes in the kitchen or exploring the latest tech innovations!  
